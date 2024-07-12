@@ -6,11 +6,13 @@
 
 Sami Swoi. Poczatek | Cały film za darmo | Polsku Lektor | CDA UHD/720p
 
-√ Oglądaj teraz ➥ [Sami Swoi. Poczatek (2024) cały film po Polsku](https://weflix.cloud/movie/1178451/our-folks-the-beginning.html?github)
+
+[√ Oglądaj Teraz ➥ Sami Swoi. Poczatek (2024) cały film po Polsku](https://weflix.cloud/movie/1178451/our-folks-the-beginning.html?github)
 
 @Oglądaj_Sami Swoi. Poczatek_Cały_film_po_Polsku_za_Darmo #Oglądaj_Sami Swoi. Poczatek_Cały_film_po_Polsku_za_Darmo
 
-√ Pobierz tutaj ➥ [Sami Swoi. Poczatek (2024) cały film po Polsku](https://weflix.cloud/movie/1178451/our-folks-the-beginning.html?github)
+[√ Pobierz Tutaj ➥ Sami Swoi. Poczatek (2024) cały film po Polsku](https://weflix.cloud/movie/1178451/our-folks-the-beginning.html?github)
+
 
 Czy lubisz filmy Marvela? Jeśli tak, pokochasz Jasona Momoa i Patricka Wilsona: #Sami Swoi. Poczatek: Film. w swoim gatunku,
 
